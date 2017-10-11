@@ -1,3 +1,0 @@
-#krasnovss
-# krasnovss
-# krasnovss
